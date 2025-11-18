@@ -1,1 +1,1 @@
-                                                      ❤️ Uma pequena omenagem ao meu amor! ❤️
+                         ❤️ Uma pequena omenagem ao meu amor! ❤️
